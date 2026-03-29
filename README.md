@@ -1,2 +1,2 @@
 # logitalk
-дщпшефдл
+logitalk
