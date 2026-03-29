@@ -1,2 +1,2 @@
 # logitalk
-lk;k;k
+khkjkkjhkjhkjkjkjkjkjkhjkjkjjkjjkjhkjhkjjk
